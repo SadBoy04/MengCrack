@@ -1,2 +1,1 @@
 # MengCrack
-Sc mengkrek ygy🗿
